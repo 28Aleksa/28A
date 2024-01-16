@@ -3,6 +3,5 @@ asdsd
 sasasafdff
 sadad
 dfsafggdfgd
-xzxcdwddqw
-sadadadsfgasgsag
+xzxcd
 сфвfgdgd
