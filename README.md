@@ -4,6 +4,4 @@ sasasafdff
 sadaddfsfefewf
 dfsafggdfgd
 xzxcd
-сфвfgdgd
-dvd
-gdfgfbxbz
+сф
