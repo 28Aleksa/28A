@@ -3,7 +3,6 @@ asdsd
 sasasafdff
 sadadd
 dfgdfgdfgdggczdfgzesfe
-cdgrgdgdgsG
-ghjjfthxhhsfgstgrdse
+cdgrgdggstgrdse
 gfxbfdghc
 vzdcszcX
